@@ -3,4 +3,4 @@ Alunno Ye Yijing
 
 Iscritto all'I.T.I.S. GALILEO GALILEI 
 
-Anno 3^ sezione C  
+Anno 4^ sezione C  
